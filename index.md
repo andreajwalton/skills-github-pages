@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+The Blog Era: Welcome to Green with Grief! 
 ---
